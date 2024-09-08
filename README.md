@@ -12,9 +12,11 @@ Design Cativante: Cada casa é apresentada com imagens e descrições estilizada
 Entretenimento e Conhecimento: Além de ser divertido, você aprende mais sobre as diferentes raças de cães e suas personalidades únicas.
 Curiosidade: Quer surpreender os amigos? Mostre a eles o quão fiel ao estilo Stark seu cãozinho pode ser ou se o seu companheiro tem toda a nobreza de um Lannister!
 Interação com o Universo Pop: Game of Thrones pode ter acabado, mas os fãs ainda têm sede de histórias envolventes – e seu cão agora faz parte dessa aventura.
+
 📅 Próximas Funcionalidades
 Mais raças serão adicionadas! 🐕
 Perfis mais detalhados de cada casa e suas semelhanças caninas.
 Integração com redes sociais para compartilhar o resultado com amigos!
+
 📣 Pronto para descobrir a casa de Westeros que seu cachorro representa?
 Acesse o site e embarque nessa jornada épica agora mesmo! 🐾⚔️
